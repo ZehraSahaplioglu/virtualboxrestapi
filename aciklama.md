@@ -23,3 +23,14 @@
 # burada pr yanlış yazılmış resmi çektikten sonra farkedip sildim
 
 ![10](https://user-images.githubusercontent.com/99864727/206557380-47bf29ee-189b-4086-8e50-8c599314980c.jpg)
+
+![11](https://user-images.githubusercontent.com/99864727/206557639-2669b91f-0a7e-489b-8daf-d2c62a6b7716.jpg)
+
+# Github'dan token alma:
+
+![b](https://user-images.githubusercontent.com/99864727/206557865-d193dfee-4bc9-47b9-8e27-5c35bc014c3c.jpg)
+
+![12](https://user-images.githubusercontent.com/99864727/206557663-76019c42-a69b-435d-a04c-7e1f5f3c6b67.jpg)
+
+![b](https://user-images.githubusercontent.com/99864727/206557919-d7d8d92b-fd34-4126-a519-7f45c46a4163.jpg)
+
