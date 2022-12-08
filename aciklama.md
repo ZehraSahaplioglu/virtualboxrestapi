@@ -15,3 +15,11 @@
 ![6](https://user-images.githubusercontent.com/99864727/206556873-b09b0e9f-a79e-4326-8998-70a9c91fccb5.jpg)
 
 ![7](https://user-images.githubusercontent.com/99864727/206557185-c617fb3f-9afe-4b97-adbe-881c34c83775.jpg)
+
+![8](https://user-images.githubusercontent.com/99864727/206557311-7ed6cb8e-983a-4769-ab95-bd61170801f5.jpg)
+
+![9](https://user-images.githubusercontent.com/99864727/206557354-1ed940d9-b66a-42a6-ac12-c0e2388cb81c.jpg)
+
+# burada pr yanlış yazılmış resmi çektikten sonra farkedip sildim
+
+![10](https://user-images.githubusercontent.com/99864727/206557380-47bf29ee-189b-4086-8e50-8c599314980c.jpg)
