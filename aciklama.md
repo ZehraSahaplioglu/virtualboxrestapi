@@ -24,6 +24,8 @@
 
 ![10](https://user-images.githubusercontent.com/99864727/206557380-47bf29ee-189b-4086-8e50-8c599314980c.jpg)
 
+![20](https://user-images.githubusercontent.com/99864727/206559113-039a7e22-7ccb-4323-9e0e-02c5240d9a55.jpg)
+
 ![11](https://user-images.githubusercontent.com/99864727/206557639-2669b91f-0a7e-489b-8daf-d2c62a6b7716.jpg)
 
 # Github'dan token alma:
